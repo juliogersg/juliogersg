@@ -27,11 +27,11 @@ Here are some ideas to get you started:
   
 - 🤝 Always open to collaborate on AI and data projects
 
-- 📫 How to reach me **jseminariogastelo@gmail.com**
+- 📫 How to reach me: **jseminariogastelo@gmail.com**
 
-- 📄 Know about my experiences [https://1drv.ms/b/c/9e075c21510414fe/EVg6BpLCivtFlFfrpQM9WtkBwCkKMvS6RHBu2zMKFFe1cw?e=06Ecf1](https://1drv.ms/b/c/9e075c21510414fe/EVg6BpLCivtFlFfrpQM9WtkBwCkKMvS6RHBu2zMKFFe1cw?e=06Ecf1)
+- 📄 Know about my experiences: [CV_-_Julio_Seminario](https://1drv.ms/b/c/9e075c21510414fe/EVg6BpLCivtFlFfrpQM9WtkBwCkKMvS6RHBu2zMKFFe1cw?e=06Ecf1)
 
-- ⚡ Fun fact **Latino who builds intelligent systems but still can’t dance salsa**
+- ⚡ Fun fact: **Latino who builds intelligent systems but still can’t dance salsa**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
